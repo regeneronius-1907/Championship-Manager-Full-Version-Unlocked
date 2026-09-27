@@ -1,0 +1,1 @@
+# Championship-Manager-Full-Version-Unlocked
